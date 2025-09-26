@@ -1,2 +1,0 @@
-# Boba.EJ
-invitación Boba 
